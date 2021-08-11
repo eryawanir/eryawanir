@@ -1,1 +1,1 @@
-# pengen punya cewe woy
+# yaudahlah ya, mudah-mudahan kita masuk surga
